@@ -1,0 +1,1 @@
+# hackintosh-AMD-Ryzen5-Asus-PRIME-450M-k
